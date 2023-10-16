@@ -6,4 +6,4 @@ Rogelio Lizárraga Escobar A01742161
 
 Rubén Dario Castro Terrazas A00833945
 
-Christian Jaffe Alarcón Acosta A00832881
+Christian Jaffé Alarcón Acosta A00832881
